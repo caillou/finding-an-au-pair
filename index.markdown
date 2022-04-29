@@ -38,7 +38,7 @@ You will basically become part of our family and help wherever you can. You will
 
 You will visit a weekly german language course and get a monthly salary of 700 CHF / 615 Euro.
 
-Ideally you will be here before the end of November.
+Ideally you will be here before the end of July or August.
 
 ## The Neighbourhood
 
