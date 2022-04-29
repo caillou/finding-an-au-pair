@@ -6,7 +6,7 @@ date:   2022-04-28 18:00:00 +0200
 ---
 
 <figure>
-    <img src="/images/3.jpg"
+    <img src="images/3.jpg"
          alt="Child with water">
 </figure>
 
