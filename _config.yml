@@ -22,8 +22,8 @@ title: Au-Pair In Zurich
 email: pierre.spring@caillou.ch
 description: >- # this means to ignore newlines until "baseurl:"
   We are looking for an au-pair for 2022 – 2023.
-baseurl: "" # the subpath of your site, e.g. /blog
-url: "" # the base hostname & protocol for your site, e.g. http://example.com
+# baseurl: "" # the subpath of your site, e.g. /blog
+# url: "" # the base hostname & protocol for your site, e.g. http://example.com
 # twitter_username: jekyllrb
 # github_username:  jekyll
 
