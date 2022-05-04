@@ -12,7 +12,7 @@ date:   2022-04-28 18:00:00 +0200
 
 ## We are looking for an au-pair for&nbsp;2022&nbsp;–&nbsp;2023.
 
-We are a somewhat unconventional family living in Zurich. We have a room-mate, are very close to our neighbours, live in the garden in the summer, have a Sauna, …
+We are a somewhat unconventional family living in Zurich. We have a room-mate, are very close to our neighbors, live in the garden in the summer, have a Sauna, …
 
 The spoken language is mostly German and Swiss-German.
 
@@ -29,7 +29,7 @@ Au-pairs have lived with us since 2019. We really love this experience!
 ## Who You Are
 
 
-We are looking for someone open to a new experience. Someone with a big heart for our kids. Someone who is open-minded for our lovely neighbours and who is looking for a new temporary family.
+We are looking for someone open to a new experience. Someone with a big heart for our kids. Someone who is open-minded for our lovely neighbors and who is looking for a new temporary family.
 
 ## The Job
 
@@ -38,16 +38,18 @@ You will basically become part of our family and help wherever you can. You will
 
 You will visit a weekly german language course and get a monthly salary of 700 CHF / 615 Euro.
 
+Also, we will support you with all the somewhat scary and annoying tasks like finding an insurance, or getting a work and residential permit. No need to worry about that.
+
 Ideally you will be here before the end of July or August.
 
-## The Neighbourhood
+## The Neighborhood
 
 
 We love our neighbourhood and the people who live here.
 
 <img src="images/kirchenplatz.jpg" loading="lazy">
 
-We live in a 300 year old farm in the the city. We have a big garden that we share with the other families, with a **sauna** and Pizza stove. We spend the summer in the Garden, mostly with our neighbours. We eat together on the street wile the kids ride the bikes and play ping-pong. It feels like a village in the middle of the town. **It really is a magical place with nice people.**
+We live in a 300 year old farm in the the city. We have a big garden that we share with the other families, with a **sauna** and Pizza stove. We spend the summer in the Garden, mostly with our neighbors. We eat together on the street wile the kids ride the bikes and play ping-pong. It feels like a village in the middle of the town. **It really is a magical place with nice people.**
 
 <img src="images/9.jpg" loading="lazy">
 
