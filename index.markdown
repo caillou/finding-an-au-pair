@@ -36,11 +36,11 @@ We are looking for someone open to a new experience. Someone with a big heart fo
 
 You will basically become part of our family and help wherever you can. You will look after the kids during the days. Mosts of the time one of us will be there too. Like everyone who lives here, you will help around the house. We love to cook together in the evenings, sometimes we watch a movie together, sometimes we retire to our rooms.
 
-You will visit a weekly german language course and get a monthly salary of 700 CHF / 615 Euro.
+You will visit a weekly german language course and get a **monthly salary** of 700 CHF / 615 Euro.
 
-Also, we will support you with all the somewhat scary and annoying tasks like finding an insurance, or getting a work and residential permit. No need to worry about that.
+It goes without saying that we will support you with **administrative tasks** like finding an insurance, or getting your work and residential permit. No need to worry about that.
 
-Ideally you will be here before the end of July or August.
+Ideally you will be here before the **end of July or August**.
 
 ## The Neighborhood
 
