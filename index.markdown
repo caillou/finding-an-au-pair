@@ -76,7 +76,7 @@ There is a lake, many parks, nice hipster coffee-shops, several shopping areas, 
 ## Contact
 
 
-If you are interested or have any questions, do not hesitate to contact us via email at [pierre.spring@caillou.ch](mailto:pierre.spring@caillou.ch) or via text at [+41 77 508 79 13](sms:+41775087913?&body=Hi!%20I%20say%20your%20ad%20for%20an%20au-pair...).
+If you are interested or have any questions, do not hesitate to contact us via email at [pierre.spring@caillou.ch](mailto:pierre.spring@caillou.ch) or via text at [+41 77 508 79 13](sms:+41775087913?&body=Hi!%20I%20saw%20your%20ad%20for%20an%20au-pair...).
 
 
 ## We are looking forward to hearing from you!
